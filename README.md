@@ -6,4 +6,4 @@ Sijie Liu is a MSBA student at Brandeis International Business School. Before th
 
 Zijie Wang is a second-year dual degree student in MSF&MSBA. Before that, he gained his bachelor’s degree majoring in accounting and journalism. He has clear study and research goals and plans to apply for a Ph.D. after graduation. He has a great interest in exploring all kinds of new knowledge by reading books or taking all other useful resources to improve his academic background. His concentration is Risk management.
 
-Jin is an undergraduate student majoring in Business and will graduate next year. He has a great interest in data analysis and is willing to spend time exploring and improving data skills. After graduation, he may want to apply for a master’s degree and narrow more in the business or data analysis area. 
+Xinpeng is an undergraduate student majoring in Business and will graduate next year. He has a great interest in data analysis and is willing to spend time exploring and improving data skills. After graduation, he may want to apply for a master’s degree and narrow more in the finance and data analysis area. 
