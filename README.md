@@ -1,4 +1,4 @@
-# Peace-Perfectionist
+# Jia Si 
 A brief description of your academic/professional career.
 My name is Jia Si. I am a second-year student majoring in MSF&MSBA dual degree at the Brandeis International Business School. Before that, I graduated from the Boston University School of Law and majored in Banking and Financial law. That was the first time I explored the financial market. After that, I worked as a credit risk analyst in the Bank of China where I realized more financial background is needed if I wanted to transfer to the financial area and that is the reason I came here to study. In the future, I am looking forward to positions related to asset management or risk analysis. 
 
